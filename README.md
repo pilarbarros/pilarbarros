@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pilarbarros
-- 👀 I’m interested in Environmental Economics
+- 👀 I’m interested in International Macroeconomics with a focus on the Environment 
 - ⚡ Fun fact: I cannot start my day without a good Argentine mate 🧉 
 
 <!---
